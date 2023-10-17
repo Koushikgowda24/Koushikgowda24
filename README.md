@@ -1,5 +1,5 @@
 👨‍💻 Data Enthusiast | Machine Learning & AI Explorer
-🎓 Pursuing AMBA in Data Science
+🎓 Pursuing MBA in Data Science
 💼 Business Operation Associate at Accenture
 
 🌐 Passionate about the world of data, analytics, and artificial intelligence.
